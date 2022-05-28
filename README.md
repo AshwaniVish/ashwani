@@ -1,2 +1,0 @@
-# ashwani
-CSE || Student ||
